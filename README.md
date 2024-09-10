@@ -1,2 +1,0 @@
-# Portfolio
-Divyanshu Shekhar Portfolio
